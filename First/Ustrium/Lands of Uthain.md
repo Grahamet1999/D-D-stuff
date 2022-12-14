@@ -1,0 +1,1 @@
+Consists of only Beastfolk and the occasional traders from other nations
